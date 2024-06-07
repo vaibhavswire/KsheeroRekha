@@ -1,2 +1,2 @@
 # KsheeroRekhaGoogleConsole
-Google Android apps simply built in HTML for sharing with the Hindi world for promotion of certain skills and global exposure.
+Google Android apps simply built in HTML for sharing with the Hindi world for promotion of key ideas, skills and novelties
