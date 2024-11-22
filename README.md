@@ -12,3 +12,7 @@ Utkranti Sara: Composed by Kadaramandalgi Kanteshacharya in Sanskrit Only
 
 for Samkhya/mathematics the best cooked link is this-
 https://oeis.org/
+
+for Sanskrit of it, go to this book on Google/ExoticIndia/Archive.org-
+सांख्यसंग्रह: A Collection of Nine Works of Samkhya Philosophy by 
+श्री विन्धेश्वरी प्रसाद द्विवेदी (SHRI VINDHESHWARI PRASAD DWIVEDI)
