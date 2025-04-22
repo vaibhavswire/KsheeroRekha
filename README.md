@@ -16,3 +16,5 @@ https://oeis.org/
 for Sanskrit of it, go to this book on Google/ExoticIndia/Archive.org-
 सांख्यसंग्रह: A Collection of Nine Works of Samkhya Philosophy by 
 श्री विन्धेश्वरी प्रसाद द्विवेदी (SHRI VINDHESHWARI PRASAD DWIVEDI)
+
+https://youtu.be/H3ZF-Ej2wQg?si=F67uPmLzLIStZEZn
